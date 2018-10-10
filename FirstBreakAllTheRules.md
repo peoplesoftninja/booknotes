@@ -1,3 +1,7 @@
+- [First Break All The Ruls by Donald O Clifton](#first-break-all-the-ruls-by-donald-o-clifton)
+- [The 12 Items to measure the Stregth of a workplace](#the-12-items-to-measure-the-stregth-of-a-workplace)
+- [Random Quotes and my points](#random-quotes-and-my-points)
+
 # First Break All The Ruls by Donald O Clifton
 
 # The 12 Items to measure the Stregth of a workplace
